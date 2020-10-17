@@ -85,7 +85,7 @@ You are also asked to share your video if you are able and feel comfortable for 
 | 10/02| Assignment #2 |
 | 10/16| First One-on-One to be Completed|
 | 10/16| Assignment #3 |
-| 10/19| Test #1 |
+| 10/22| Test #1 |
 | 10/30| Assignment #4 |
 | 11/02| Last Day to Withdraw|
 | 11/13| Assignment #5 |
